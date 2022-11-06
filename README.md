@@ -7,7 +7,6 @@ I’m **@AndrewGalaz23**, a web developer working in Bergamo, Italy. 🇪🇺�
 · [YouTube](https://www.youtube.com/c/AndreaGalizzi)
 · [Reddit](https://www.reddit.com/u/AndrewGalaz23)
 · [YouTube Music](https://music.youtube.com/channel/UCadlBo0dwflE_zslSqBMusA?feature=share)
-· [Stadia](https://stadia.com/profile/2956733349216816881)
 · [RacingMania](https://racingmania.it/account/1)
 
 <!---
